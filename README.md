@@ -1,4 +1,4 @@
-## Hi there 👋
+Experienced professional | Lifelong learner | Combining experience, technology, and continuous growth.
 
 <!--
 **Emmytail/Emmytail** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
